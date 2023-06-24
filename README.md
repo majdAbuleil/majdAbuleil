@@ -2,7 +2,7 @@
 - 👀 I’m a Ethcal Hacking 👨‍💻 || Cyber security || 🛡️ Cyber and information security || 💻Penetration Tester ||
 - 📫 How to reach me :-->
 -     Linkedln : https://www.linkedin.com/in/majd-abuleil-3515a524b
--     Twetter : @Cyber_Majd
+-     Twitter : @Cyber_Majd
 -     
 
 <!---
